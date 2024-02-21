@@ -1,4 +1,4 @@
-[<img src='assets/For-post.png' alt='banner' width= '99.9%'>]()
+[<img src='assets/entangle_banner-2.png' alt='banner' width= '99.9%'>]()
 
 ▶️ **[JOIN DISCORD](https://discord.gg/8nmeM2YuAv) ◀️ AND START MONITORING ENTANGLE NETWORK**
 ---
